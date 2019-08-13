@@ -1,2 +1,2 @@
-# S-ndor-
+Sanyi
 Szia jó weben szóval szórakozni 
